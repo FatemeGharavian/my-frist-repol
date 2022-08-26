@@ -1,2 +1,7 @@
-# my-frist-repol
-this is my frist repol
+#frist project 
+mxsjkd bkhh    
+ mclkdjcdjc  kdkc
+ 
+ 
+ cldkjcoec pk kdc  
+ codds dlkcdpc cdcdgb  
